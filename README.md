@@ -1,0 +1,2 @@
+# lite
+Gunaian dengan bijak
